@@ -7,7 +7,7 @@ I am He,
 
 BR©ōa¢h™
 💱
-Sensei no Kyodai
+Sensei no Kyoudai
 
 ㊙️㊗️🈺🆎🔀🈚
 
