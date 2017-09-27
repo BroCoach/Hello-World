@@ -1,5 +1,4 @@
-# Hello-World
-Meta-Zen
+# Meta-Zen
 Bow down to none but thyself.
 🚻
 I am He,
