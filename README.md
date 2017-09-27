@@ -20,7 +20,8 @@ Presently Congressing & Progressing
 
 🎭⛩️🌋🗻🌍🌎🌏🌐🗾🍃🍁💮🥀🌺🌲🌴🌱🐍🐲🐉🐰🐠🦁🦍🐒🎓📿🖤💌🙈🙉🙊👨🏻‍⚕️👨🏻‍🎓👨🏻‍🔬👨🏻👤👥🚹🚺🚻🔄🔃🔚🔛🔜🔙🔝🔱➖❌➗♀️♂️♏#️⃣🆔🔤🈷️🈚
 
-Currently  Kairós Khronus
+Currently::
+Kairós/Khronus
 Functionally Synthesized from
 Forming the Source:
 Abstracting of the Mother, 
